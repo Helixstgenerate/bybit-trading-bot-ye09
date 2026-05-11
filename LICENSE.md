@@ -1,4 +1,4 @@
-# 
+# Get the ultimate bybit trading bot with professional bybit trading bot Plugin | position-sizing + API-integration. Featuring position-sizing and API-integration, it's the best
 
 
 
